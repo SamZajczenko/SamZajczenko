@@ -1,5 +1,5 @@
 # 💫 About Me:
-## Hi, I'm Sam Zajczenko <br><br>🧠​ Mechanical Engineering Student @ UIUC <br/><br>​🤓​ I code to stay <br/><br>😎 Follow me on ([LinkedIn]https://www.linkedin.com/in/sam-zajczenko/))<br/><br>
+## Hi, I'm Sam Zajczenko <br><br>🧠​ Mechanical Engineering Student @ UIUC <br/><br>​🤓​ I code to stay fluid and knowledgeable. <br/><br>😎 Follow me on [LinkedIn](https://www.linkedin.com/in/sam-zajczenko/)<br/><br>
 
 
 ## 🌐 Socials:
